@@ -1,1 +1,1 @@
-[DEMO](https://panasiuknazar.github.io/AuroraSolar-stica-solar-consulting-website-MP-SP-II/)
+[DEMO](https://panasiuknazar.github.io/AuroraSolar-stica-solar-consulting-website-SP-SP-II/)
